@@ -1,1 +1,0 @@
-# InValley-Delight
